@@ -37,4 +37,4 @@ This Privacy Policy is effective as of [[Date]] and will remain in effect except
 
 ## Contact Information
 
-For any questions or concerns regarding the privacy policy, please send [["me"]] an email to [[osamagamil2070@gmail.com]].
+For any questions or concerns regarding the privacy policy, please send [["me"]] an email to [[osamagamil@0samaahmed.com]].
